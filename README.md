@@ -1,1 +1,0 @@
-# vandysales.github.io
